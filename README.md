@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @KFSishka
+- 👋 Hi, I’m @KFSishka, I’m 20 y.o. guy and I’m from Russia
 - 👀 I’m interested in psychology, I like to watch TV series on netflix, and also, I like to play sports (football, workout)
 - 🌱 I’m currently learning customs at an institute in Russia, in parallel with this, I am studying video and photo editing
 - 💞️ I’m open to any suggestions, however, since I have no experience in various fields, I will be glad if you can teach me a lot
